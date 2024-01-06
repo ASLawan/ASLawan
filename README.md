@@ -6,7 +6,7 @@
 
 - 🔭 I’m currently working on **daily projects submitted as part of the learning process**
 
-- 🌱 I’m currently learning **c and python**
+- 🌱 I’m currently learning **C, python and Bash scripting**
 
 - 📫 How to reach me **sewoyebaa@outlook.com**
 
