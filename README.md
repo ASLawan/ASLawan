@@ -11,7 +11,7 @@
 
 - 📫 How to reach me **sewoyebaa@outlook.com**
 
-- ⚡ Fun fact **I have a deep voice but and I quite small in person.**
+- ⚡ Fun fact **I have a deep voice but I am quite small in person such that my size and voice are direct opposites.**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
